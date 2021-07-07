@@ -1,0 +1,2 @@
+# Third-Try
+I was completely lost in the very first class session, but this is actually the first thing in this class has really clicked in my brain.  I'm very sorry for missing class today, but I really wanted to figure this out before attending class and not hold others in the class back.  Seeing as how I only have a few more minutes for this assignment is due, I'd please like to redo this project after it has been submitted.  
